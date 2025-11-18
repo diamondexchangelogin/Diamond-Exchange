@@ -1,2 +1,0 @@
-# Diamond-Exchange
-Diamond Exchange
